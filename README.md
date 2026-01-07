@@ -1,3 +1,3 @@
 # Three.js Stuff
 
-stopped here: https://youtu.be/kt0FrkQgw8w?si=V4YxG1T_4SL5SEnT&t=4594
+stopped here: https://youtu.be/kt0FrkQgw8w?si=80EtSfKJKq31Xc_q&t=5372
