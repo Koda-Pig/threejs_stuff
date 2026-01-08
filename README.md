@@ -1,3 +1,3 @@
-# Three.js Stuff
+https://youtu.be/tdsQwuyS6DQ
 
-stopped here: https://youtu.be/kt0FrkQgw8w?si=80EtSfKJKq31Xc_q&t=5372
+email this dude for help: andrewwoan@gmail.com
