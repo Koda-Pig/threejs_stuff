@@ -20,3 +20,5 @@ hold down Z to change view mode. Useful for selecting the right things
 
 Stopped here:
 https://youtu.be/yhtdkuw9mbM?si=Ubw5GWwxED6L-D_3&t=2521
+
+Bro straight up not having a good fucking time with Blender.
